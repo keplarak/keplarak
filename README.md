@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @keplarak
 - 👀 I’m interested in nothing for now
 - 🌱 I’m currently learning basic programing
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on? idk
+- 📫 How to reach me? idk
 - 😄 Pronouns: man
 - ⚡ Fun fact: we only have two genders in this world
 
